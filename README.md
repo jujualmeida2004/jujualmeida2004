@@ -7,4 +7,4 @@
  - ## 😎 utilizo esse perfil para compartilhar meus projetos desenvolvidos;
 
 ## Para entrar em contato comigo:
-## :es
+## 💎 fuzaro.giulina
